@@ -20,8 +20,8 @@
 Lass uns über Gaming und mehr quatschen - ich freue mich auf interessante Gespräche!
 
 🎵 Musik, Filme und mehr:
-- [Deine Lieblingsmusik oder Bands]
-- [Top-Filme oder Serien, die du magst
+- Coldplay auf die #1
+- Top Gun & Mission Impossible
 
 🔥 Fun Facts:
 - Ich ändere gefühlt jeden Monat meinen IngameNamen
