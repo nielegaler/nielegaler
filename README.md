@@ -1,7 +1,7 @@
 👋 Hallo! Ich bin Nielegaler 👋
 
 🌟 Über mich:
-- Ich bin 15 Jahre alt, 1,87 cm gross und wohne in der Schweiz.
+- Ich bin Manu, 1,87 cm gross und wohne in der Schweiz.
 - Ich spiele Schlagzeug und bin leidenschaftlicher "Gamer".
 - Ich habe eine grosse Interesse an Computer-Dingen.
 
