@@ -2,7 +2,6 @@
 
 🌟 Über mich:
 - Ich bin Manu, 1,87 cm gross und wohne in der Schweiz.
-- Ich spiele Schlagzeug und bin leidenschaftlicher "Gamer".
 - Ich habe eine grosse Interesse an Computer-Dingen.
 
 🎮 Gaming-Leidenschaft:
